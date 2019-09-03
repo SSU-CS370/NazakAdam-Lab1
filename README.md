@@ -1,0 +1,1 @@
+# NazakAdam-Lab1
